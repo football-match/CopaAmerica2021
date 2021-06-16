@@ -12,3 +12,4 @@
 ##### 22/06/2021 Uruguay vs Chile 
 ##### 22/06/2021 Argentina vs Paraguay 
 ##### 24/06/2021 Ecuador vs Peru 
+##### 24/06/2021 Brasil vs Colombia 
