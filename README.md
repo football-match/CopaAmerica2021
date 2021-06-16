@@ -7,3 +7,4 @@
 ##### 18/06/2021 Brasil vs Peru 
 ##### 19/06/2021 Chile vs Bolivia 
 ##### 19/06/2021 Argentina vs Uruguay 
+##### 21/06/2021 Venezuela vs Ecuador 
