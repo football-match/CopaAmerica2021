@@ -19,3 +19,7 @@
 ##### 28/06/2021 Venezuela vs Peru 
 ##### 29/06/2021 Uruguay vs Paraguay 
 ##### 29/06/2021 Bolivia vs Argentina 
+##### 03/07/2021 Quarterfinals:  
+##### 03/07/2021 Quarterfinals:  
+##### 04/07/2021 Quarterfinals:  
+##### 04/07/2021 Quarterfinals:  
