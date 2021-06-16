@@ -26,3 +26,4 @@
 ##### 06/07/2021 Semi-finals:  
 ##### 07/07/2021 Semi-finals:  
 ##### 10/07/2021 Third place playoff:  
+##### 11/07/2021 Final:  
