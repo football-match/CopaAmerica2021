@@ -15,3 +15,7 @@
 ##### 24/06/2021 Brasil vs Colombia 
 ##### 25/06/2021 Bolivia vs Uruguay 
 ##### 25/06/2021 Chile vs Paraguay 
+##### 28/06/2021 Brasil vs Ecuador 
+##### 28/06/2021 Venezuela vs Peru 
+##### 29/06/2021 Uruguay vs Paraguay 
+##### 29/06/2021 Bolivia vs Argentina 
