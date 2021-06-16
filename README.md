@@ -25,4 +25,4 @@
 ##### 04/07/2021 Quarterfinals:  
 ##### 06/07/2021 Semi-finals:  
 ##### 07/07/2021 Semi-finals:  
-##### 10/07/2021 3rd place match:  
+##### 10/07/2021 Third place playoff:  
