@@ -7,7 +7,7 @@
 ##### 18/06/2021 Brasil vs Peru https://football1234567890.000webhostapp.com/20.php
 ##### 19/06/2021 Chile vs Bolivia `unavailable`
 ##### 19/06/2021 Argentina vs Uruguay https://football1234567890.000webhostapp.com/24.php
-##### 21/06/2021 Venezuela vs Ecuador 
+##### 21/06/2021 Venezuela vs Ecuador https://football1234567890.000webhostapp.com/31.php
 ##### 21/06/2021 Colombia vs Peru 
 ##### 22/06/2021 Uruguay vs Chile 
 ##### 22/06/2021 Argentina vs Paraguay 
